@@ -1,0 +1,5 @@
+- Olá, seja bem-vindo ao meu perfil.
+- Eu sou do Brasil.
+- Gosto de animais e livros.
+- Aprendendo a língua inglesa.
+- Aluna do 1° ano do ensino médio
